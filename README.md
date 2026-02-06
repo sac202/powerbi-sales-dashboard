@@ -37,4 +37,4 @@ The interactive Power BI dashboard provides actionable insights to improve decis
 
 
 📧 Contact
-For questions or collaborations: **[Your Email: sachinkrishnaku*gmail.com / LinkedIn]([https://linkedin.com/in/yourprofile](https://www.linkedin.com/in/sachin-krishna-534974316/))
+For questions or collaborations:My Email: sachinkrishnaku8@gmail.com / LinkedIn]([https://linkedin.com/in/yourprofile](https://www.linkedin.com/in/sachin-krishna-534974316/))
